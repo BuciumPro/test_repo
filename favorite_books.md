@@ -3,3 +3,13 @@
 - The North Star by Marco Polo
 - All About Earth by Lorenzo Lammas
 - Anatomica 2024 by Saq Barkley
+- Omul Care a Rezolvat Piata by Gregory Zuckerman
+- the Power of Nice
+- Cryptograms
+- Getting Things Done by David Allen
+- the Market Research Toolbox by McQuarrie
+- The Alchemists by Neil Irwin
+- The Black Swan
+- Podul Crimelor Din Venetia by Matteo Strukul
+- Teste de Matematica
+- Escrocherii Din Lumea Bancara by Rene Zeyer
