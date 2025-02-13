@@ -14,4 +14,4 @@
 - Teste de Matematica by Dumitru D. Paraiala
 - Escrocherii Din Lumea Bancara by Rene Zeyer
 - The Art of Doing Nothing
-- Github: From Beginner to Expert
+- Github: From Beginner to Expert by Bukka Naga Swapna
